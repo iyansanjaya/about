@@ -1,9 +1,12 @@
 # 👋 Hi there!
-I am the owner of Poronesia, an e-commerce website that sells various kinds of original games and several digital products.
+I am a Graphic Designer, Writer, and Businessman.
 
-# Find me
-- My Profile  : https://iyansanjaya.com
-- Instagram   : https://instagram.com/iyannsanjaya
-- Twitter     : https://twitter.com/iyannsanjaya
-- Facebook    : https://facebook.com/iyannsanjaya
-- Email       : iyansanjaya1@gmail.com
+There's nothing special about me, but it seems like some people are quite fond of me, are you curious?
+
+## Find me
+- https://iyansanjaya.com
+- https://iyan.poronesia.com
+
+## My Business
+- https://poronesia.com
+- https://easytive.com (soon)
