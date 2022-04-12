@@ -9,4 +9,4 @@ There's nothing special about me, but it seems like some people quite like me, I
 
 ## My Business
 - https://poronesia.com
-- https://easytive.com (soon)
+- https://parative.com (soon)
